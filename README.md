@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning LLM
 
 I'm currently on an active job search
-
+[My resume](https://khabarovsk.hh.ru/applicant/resumes/view?resume=ca9fd921ff0c19a7520039ed1f6e5644577445)
 
 
 
